@@ -214,4 +214,4 @@ Live for Speed is fully free to download, with all features and updates included
 Download Live for Speed today and immerse yourself in the ultimate racing simulation experience!
 
 ---
-**Last updated:** 2026-09-24 13:16:02 UTC
+**Last updated:** 2026-09-24 18:14:11 UTC
